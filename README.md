@@ -1,2 +1,0 @@
-# bedirhan
-#birinci
